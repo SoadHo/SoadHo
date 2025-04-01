@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Gyaat
+- 👋 Hi, I’m Sodapop
 - 👀 I’m interested in Cats/Boba
 - 🌱 I’m currently learning Github
 - 💞️ I’m looking to collaborate on Everything
